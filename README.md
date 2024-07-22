@@ -1,1 +1,1 @@
-# This is was made by GPT-4 not me!
+# This is was made by GPT-4, not me!
